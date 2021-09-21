@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shalunishkin
-- 👀 I’m interested in Do nothing to get big money
+- 👀 I’m interested in do nothing to get big money
 - 🌱 I’m currently learning nowhere
 - 💞️ I’m looking to collaborate on with vkontakte, steam, google
 - 📫 How to reach me https://vk.com/anusoed
